@@ -144,3 +144,9 @@ Operational Recommendation
 
 Interactive 3D Thermal Environment
 
+---
+
+## Founder & Creator
+
+**MAGAPU PURNA VEERENDRA SRIHARSHA**
+
